@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @ignFlamez
-- 👀 I’m interested in bedwars
+- 👀 I’m interested in Minecraft PVP
 - 📫 How to reach me my discored is ignflamez
 - 😄 Pronouns: Who cares
-- ⚡ Fun fact: I am himothy at bedwars
+- ⚡ Fun fact: I am himothy
 
 <!---
 ignFlamez/ignFlamez is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
