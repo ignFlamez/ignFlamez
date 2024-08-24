@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ignFlamez
 - 👀 I’m interested in Minecraft PVP
 - 📫 How to reach me my discored is ignflamez
-- 😄 Pronouns: Who cares
+- 😄 Pronouns: good/person
 - ⚡ Fun fact: I am himothy
 
 <!---
